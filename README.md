@@ -47,4 +47,4 @@ I create tutorials, food art videos, and creative design walkthroughs.
 - 🖥️ Portfolio: [no GitHub Pages Link]  
 
 ---
-⭐️ From [Your Name]
+⭐️ From [sazzadur rahman]
