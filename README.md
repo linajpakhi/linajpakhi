@@ -14,7 +14,7 @@ I love turning ideas into visuals and engaging stories. My focus is on originali
 ---
 
 ## 📺 YouTube Channel
-👉 [Subscribe to my channel]([https://www.youtube.com/@chineserecipemalaysiavlog)  
+👉 [Subscribe to my channel] https://www.youtube.com/@chineserecipemalaysiavlog)  
 I create tutorials, food art videos, and creative design walkthroughs.  
 
 ---
